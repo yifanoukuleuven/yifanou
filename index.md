@@ -13,8 +13,10 @@ I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then go
    Graduation with Merit, Mphil supervisor: John B Thompson
    Master : Communication University of China                                                       
    Major:Broadcasting and Host Art                                                                                                     
-   Outstanding graduates of Beijing&National Scholarship 
-   
+   GPA:3.92/4.0,Outstanding graduates of Beijing&National Scholarship 
+   Bachelor: Zhejiang University of Technology
+   Major:Braodacasting and Hosting Art& Business Administration
+   GPA:3.90/4.0,Outstanding granduates of the University
 ### Research Projects(Selected):
 （1）National Poject：National Social Science Fund Art Project,funded by National Social Science Fund of China(NSSFC) ，Project approval number: 21BF085，2021.08-2025.12
  Project Member, Funding amount:200,000 RMB
