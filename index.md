@@ -3,12 +3,14 @@
 Phd Candidate in Kuleuven University(Dutch), assisant professor in China
 鲁汶大学大众传播学院博士候选人（荷兰语），曾经的大学讲师（中国）
 
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
+###Qualifications:
+   MPhil:University of Cambridge   
+   Major:Sociology(Media and Culture route)         
+  Graduation with Merit, Mphil supervisor: John B Thompson
+   Master : Communication University of China                                                       
+   Major:Broadcasting and Host Art                                                                                                     
+   Outstanding graduates of Beijing&National Scholarship 
+ 
 
 # 教育背景
 
