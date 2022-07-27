@@ -1,8 +1,7 @@
-## Welcome to GitHub Pages
+##Yifan Ou
 
-You can use the [editor on GitHub](https://github.com/yifanoukuleuven/yifanou/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Phd Candidate in Kuleuven University(Dutch), assisant professor in China
+鲁汶大学大众传播学院博士候选人（荷兰语），曾经的大学讲师（中国）
 
 ### Markdown
 
