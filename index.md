@@ -1,7 +1,9 @@
-###  Candidate in Kuleuven University(Dutch), assisant professosear,cantab
+###  Candidate in Kuleuven University(Dutch), assisant professor,cantab
 鲁汶大学大众传播学院博士候选人（荷兰语），曾经的大学讲师（中国）,剑桥大学硕士
 
 I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then got the position to be an assistant professor to teach the art majors. Apart from serval years of working in the university, I also had experiences of part-time jobs and interships in media institutes(Like CCTV),which are more practical-oriental in the previous year. Also during the period, I went to University of Cambridge for the second master and now do Phd at SMCR.
+
+### Skills: R,SPSS,LATEX,Github,Photoshop,Premier,Phyton(learning,Audition(Cool Edit),Nvivo
 
 ### Top Interests：Media psychology，Well-being，Adolescents
 
@@ -22,13 +24,13 @@ Project approval number: 21BF085, Project Member, 2021.08-2025.12
 Ou, Y. (2021). 《广播心理情感类节目播音主持》(Broadcasting host of radio psychological and emotional  programs）. In: J. Feng, S. Liu, G. Zhao, B. Wang, Q. Shen (Eds.), Chapt. Fourth, (99-135). China: Hohai University Press. ISBN: 978-7-5630-7099-2. 
 
 ### Publications(Selected):
-Ou, Y. (2014). 电视新闻节目主持人的风格特点——以央视《 新闻联播》 为例 The Style Characteristics of TV News Program Hosts——Take CCTV's "News Network" as an example. 青年记者Young Jouralist, (03Z), 52-53. 
+Ou, Y. (2014). 电视新闻节目主持人的风格特点——以央视《 新闻联播》 为例 The Style Characteristics of TV News Program Hosts——Take CCTV's "News Network" as an example. 青年记者Young Jouralist, (03Z), 52-53.北京大学《中文核心期刊要目总览》来源期刊(Source Journal of Peking University Overview of Chinese Core Journals).
 
-Ou, Y. (2014). 浅析情感类节目主持人对话语风格及情感导向的把握--以《 夜线》 节目为例.An Analysis of Emotional Program Hosts' Grasp of Discourse Style and Emotional Orientation--Taking "Night Line" as an Example. 新闻知识News Research, (3), 97-97. 
+Ou, Y. (2014). 浅析情感类节目主持人对话语风格及情感导向的把握--以《 夜线》 节目为例.An Analysis of Emotional Program Hosts' Grasp of Discourse Style and Emotional Orientation--Taking "Night Line" as an Example. 新闻知识News Research, (3), 97-97.北京大学《中文核心期刊要目总览》来源期刊(Source Journal of Peking University Overview of Chinese Core Journals).
 
-Ou, Y. (2013). 浅析旅游类节目主持特点——以《有多远走多远》为例 (An Analysis of the Characteristics of Tourism Program Hosting——Take "How Far and How Far" as an Example). 中国报业 (China Newspaper Industry). 
+Ou, Y. (2013). 浅析旅游类节目主持特点——以《有多远走多远》为例 (An Analysis of the Characteristics of Tourism Program Hosting——Take "How Far and How Far" as an Example). 中国报业 (China Newspaper Industry).北京大学《中文核心期刊要目总览》来源期刊2008年版(Source Journal of Peking University Overview of Chinese Core Journals 2008 edition).
 
-Ou, Y., Wang, Q. (2013). 主持人的形象建构多元化视角分析 (Analysis of the Diversified Perspectives of the Program Host's Image Construction). 中国报业 (China Newspaper Industry). 
+Ou, Y., Wang, Q. (2013). 主持人的形象建构多元化视角分析 (Analysis of the Diversified Perspectives of the Program Host's Image Construction). 中国报业 (China Newspaper Industry) 北京大学《中文核心期刊要目总览》来源期刊2008年版(Source Journal of Peking University Overview of Chinese Core Journals 2008 edition).  
 
 ### Presentations
 Ou, Y. (2022). The relationship between social support and sense of loneliness among different personailty adolescent and mediator of gratitude. Presented at the ICA post conference “Digital Health Communication”, Dijon. 
