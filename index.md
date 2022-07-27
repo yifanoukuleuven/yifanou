@@ -3,7 +3,7 @@
 
 I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then got the position to be an assistant professor to teach the art majors. Apart from serval years of working in the university, I also had experiences of part-time jobs and interships in media institutes(Like CCTV),which are more practical-oriental in the previous year. Also during the period, I went to University of Cambridge for the second master and now do Phd at SMCR.
 
-### Skills: R,SPSS,LATEX,Github,Photoshop,Premier,Phyton(learning,Audition(Cool Edit),Nvivo
+### Skills: R,SPSS,LATEX,Github,Photoshop,Premiere,Phyton(learning) ,Audition&Cool Edit,Nvivo
 
 ### Topics of Interests：Media psychology，Well-being，Adolescents
 
@@ -26,7 +26,7 @@ I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then go
    
    （Double Degree in Management and Literature）    专业：播音与主持&工商管理双专业，文学及管理学双学士学位
    
-   Outstanding granduates of the University 浙江工业大学优秀毕业生
+   Outstanding granduates of the University&First- and second-class scholarships  浙江工业大学优秀毕业生&校一、二等奖学金
    
 ### Research Projects(Selected):
 （1）National Poject：National Social Science Fund Art Project,funded by National Social Science Fund of China(NSSFC) ，Project approval number: 21BF085，2021.08-2025.12
