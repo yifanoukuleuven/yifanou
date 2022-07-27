@@ -16,11 +16,11 @@ I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then go
    Outstanding graduates of Beijing&National Scholarship 
    
 ### Research Projects(Selected):
-（1）National Poject：National Social Science Fund Art Project,Funded by National Social Science Fund of China(NSSFC) ，Project approval number: 21BF085，2021.08-2025.12
+（1）National Poject：National Social Science Fund Art Project,funded by National Social Science Fund of China(NSSFC) ，Project approval number: 21BF085，2021.08-2025.12
  Project Member, Funding amount:200,000 RMB
 国家社科基金艺术学项目“南朝陵墓石刻与南朝文化关系研究”，项目批准号21BF085，2021.08-2025.12, 在研
 项目主要参与成员 资助金额：20万人民币
-（2）Provincial Project：The Philosophy and Social Science Research Fund Project of Jiangsu Universities is funded by the Jiangsu Provincial Department of Education. The project approval number is 2016JB760034. The project has been completed in 2018
+（2）Provincial Project：The Philosophy and Social Science Research Fund Project of Jiangsu Universities,funded by the Jiangsu Provincial Department of Education,Project approval number is 2016JB760034,completed in 2018
 Project number, Funding amount: 16,000 RMB
 江苏高校哲学社会科学研究基金项目“革命历史题材电影核心价值观呈现研究”(1990-2015)，项目批准号2016JB760034，2018年已结题
 项目主要参与成员 资助金额:1.6万人民币
