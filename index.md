@@ -1,14 +1,14 @@
-###  Candidate in Kuleuven University(Dutch), assisant professor in China,Cantab
-     Research Projects(Selected):鲁汶大学大众传播学院博士候选人（荷兰语），曾经的大学讲师（中国）,剑桥大学硕士
+###  Candidate in Kuleuven University(Dutch), assisant professosear,cantab
+鲁汶大学大众传播学院博士候选人（荷兰语），曾经的大学讲师（中国）,剑桥大学硕士
 
 I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then got the position to be an assistant professor to teach the art majors. Apart from serval years of working in the university, I also had experiences of part-time jobs and interships in media institutes(Like CCTV),which are more practical-oriental in the previous year. Also during the period, I went to University of Cambridge for the second master and now do Phd at SMCR.
 
-TOPICS OF INTERES：Media psychology，Well-being，Adolescents
+### Top Interests：Media psychology，Well-being，Adolescents
 
 ### Qualifications:
    MPhil:University of Cambridge   
    Major:Sociology(Media and Culture route)         
-  Graduation with Merit, Mphil supervisor: John B Thompson
+   Graduation with Merit, Mphil supervisor: John B Thompson
    Master : Communication University of China                                                       
    Major:Broadcasting and Host Art                                                                                                     
    Outstanding graduates of Beijing&National Scholarship 
@@ -19,7 +19,7 @@ Project approval number: 21BF085, Project Member, 2021.08-2025.12
 国家社科基金艺术学项目“南朝陵墓石刻与南朝文化关系研究”，项目批准号21BF085，2021.08-2025.12, 在研，项目参与人（负责外文资料收集、撰写和翻译等工作）
 
 ### Book Chapter
-Ou, Y. (2021). 《广播心理情感类节目播音主持》(Broadcasting host of radio psychological and emotional  programs）. In: J. Feng, S. Liu, G. Zhao, B. Wang, Q. Shen (Eds.), 《广播节目播音与主持训练教程》（Radio psychological-emotional program broadcast host）, Chapt. Fourth, (99-135). China: Hohai University Press. ISBN: 978-7-5630-7099-2. 
+Ou, Y. (2021). 《广播心理情感类节目播音主持》(Broadcasting host of radio psychological and emotional  programs）. In: J. Feng, S. Liu, G. Zhao, B. Wang, Q. Shen (Eds.), Chapt. Fourth, (99-135). China: Hohai University Press. ISBN: 978-7-5630-7099-2. 
 
 ### Publications
 
