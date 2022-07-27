@@ -5,7 +5,7 @@ I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then go
 
 ### Skills: R,SPSS,LATEX,Github,Photoshop,Premier,Phyton(learning,Audition(Cool Edit),Nvivo
 
-### Top Interests：Media psychology，Well-being，Adolescents
+### Topics of Interests：Media psychology，Well-being，Adolescents
 
 ### Qualifications:
    MPhil:University of Cambridge   
