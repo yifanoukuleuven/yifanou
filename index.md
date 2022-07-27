@@ -8,15 +8,17 @@ I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then go
 ### Topics of Interests：Media psychology，Well-being，Adolescents
 
 ### Qualifications:
-   MPhil:University of Cambridge   
-   Major:Sociology(Media and Culture route)         
-   Graduation with Merit, Mphil supervisor: John B Thompson
-   Master : Communication University of China                                                       
-   Major:Broadcasting and Host Art                                                                                                     
-   GPA:3.92/4.0,Outstanding graduates of Beijing&National Scholarship 
-   Bachelor: Zhejiang University of Technology
-   Major:Braodacasting and Hosting Art& Business Administration
-   GPA:3.90/4.0,Outstanding granduates of the University
+   MPhil:University of Cambridge   全日制研究型硕士：剑桥大学
+   Major:Sociology(Media and Culture route)  专业：社会学（媒体与文化方向）      
+   Graduation with Merit, Mphil supervisor: John B Thompson 良好毕业，导师：John B Thompson
+   
+   Master : Communication University of China   全日制硕士：中国传媒大学                                                    
+   Major:Broadcasting and Host Art              专业：广播电视-播音主持艺术方向                                                                   
+   GPA:3.92/4.0,Outstanding graduates of Beijing&National Scholarship 北京市优秀毕业生&国家奖学金
+   
+   Bachelor: Zhejiang University of Technology  全日制本科：浙江工业大学
+   Major:Braodacasting and Hosting Art& Business Administration 专业：播音与主持&工商管理双专业，文学及管理学双学士学位
+   GPA:3.90/4.0,Outstanding granduates of the University 浙江工业大学优秀毕业生
 ### Research Projects(Selected):
 （1）National Poject：National Social Science Fund Art Project,funded by National Social Science Fund of China(NSSFC) ，Project approval number: 21BF085，2021.08-2025.12
  Project Member, Funding amount:200,000 RMB
