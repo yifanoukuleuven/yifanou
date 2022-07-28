@@ -43,7 +43,7 @@ Project number, Funding amount: 16,000 RMB
 Ou, Y. (2021). 《广播心理情感类节目播音主持》(Broadcasting host of radio psychological and emotional  programs）. In: J. Feng, S. Liu, G. Zhao, B. Wang, Q. Shen (Eds.), Chapt. Fourth, (99-135). China: Hohai University Press. ISBN: 978-7-5630-7099-2. 
 
 ### Publications(Selected):
-Ou,Y et al.(2023)The mediating role of social support and Coronavirus anxiety detection mechanisms-gratitude among adolescents in the context of the Covid-19 pandemic(Abstract accepted, manuscripts wait for submission) by SSCI(Q1)special issue
+Ou,Y et al.(2023)The mediating role of social support and Coronavirus anxiety detection mechanisms-gratitude among adolescents in the context of the Covid-19 pandemic(Abstract accepted) by SSCI(Q1)
 
 Ou, Y. (2014). 电视新闻节目主持人的风格特点——以央视《 新闻联播》 为例 The Style Characteristics of TV News Program Hosts——Take CCTV's "News Network" as an example. 青年记者Young Jouralist, (03Z), 52-53.北京大学《中文核心期刊要目总览》来源期刊(Source Journal of Peking University Overview of Chinese Core Journals).
 
