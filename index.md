@@ -45,7 +45,7 @@ Ou, Y. (2021). 《广播心理情感类节目播音主持》(Broadcasting host o
 ### Publications(Selected):
 Ou,Y et al.(2023)The mediating role of social support and Coronavirus anxiety detection mechanisms-gratitude among adolescents in the context of the Covid-19 pandemic(Abstract accepted, manuscripts wait for submission) by SSCI(Q1)special issue
 
-Ou,Y et al.(2023）Instant Messengers as Emotional and Affective Spaces ： A Chinese Case Study on the Use of Emojis in WeChat under review by ESCI
+Ou,Y et al.(2023）Instant Messengers as Emotional and Affective Spaces ： A Chinese Case Study on the Use of Emojis in WeChat under review by ESCI(Q1)
 
 Ou,Y et al.(2023).《影视剧平衡艺术的儒家思想表现及三观彰显》under review by CSSCI
 
