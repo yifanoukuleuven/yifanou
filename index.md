@@ -40,7 +40,7 @@ Project number, Funding amount: 16,000 RMB
 项目主要参与成员 资助金额:1.6万人民币
 
 ### Book Chapter
-Ou, Y. (2021). 《广播心理情感类节目播音主持》(Broadcasting host of radio psychological and emotional  programs）. In: J. Feng, S. Liu, G. Zhao, B. Wang, Q. Shen (Eds.), Chapt. Fourth, (99-135). China: Hohai University Press. ISBN: 978-7-5630-7099-2. 
+Ou, Y. (2021). 《广播心理情感类节目播音主持》(Broadcasting host of radio psychological and emotional  programs）. In: J. Feng, S. Liu, G. Zhao, B. Wang, Q. Shen (Eds.), Chapt. Fourth, (99-135). China: Hohai University Press. ISBN: 978-7-5630-7099-2.（http://opac.jisu.edu.cn/opac/item.php?marc_no=0002614363&list=1）
 
 ### Publications(Selected):
 Ou,Y et al.(2023)The mediating role of social support and Coronavirus anxiety detection mechanisms-gratitude among adolescents in the context of the Covid-19 pandemic(Abstract accepted) by SSCI(Q1)
