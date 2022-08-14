@@ -47,6 +47,8 @@ Ou,Y et al.(2023)The mediating role of social support and Coronavirus anxiety de
 
 Ou,Y et al.(2023)Instant Messengers as Emotional and Affective Spaces : A Case Study of Emojis Using on WeChat in China (Abstract accepted) by SSCI(Q1)
 
+Ou,Y.et al.(2023) 影视剧平衡艺术的儒家思想表现及三观彰显-以电视剧《人世间》为例 Under review (CSSCI南大核心期刊审核稿件中）
+
 Ou, Y. (2014). 电视新闻节目主持人的风格特点——以央视《 新闻联播》 为例 The Style Characteristics of TV News Program Hosts——Take CCTV's "News Network" as an example. 青年记者Young Jouralist, (03Z), 52-53.北京大学《中文核心期刊要目总览》来源期刊(Source Journal of Peking University Overview of Chinese Core Journals).
 
 Ou, Y. (2014). 浅析情感类节目主持人对话语风格及情感导向的把握--以《 夜线》 节目为例.An Analysis of Emotional Program Hosts' Grasp of Discourse Style and Emotional Orientation--Taking "Night Line" as an Example. 新闻知识News Research, (3), 97-97.北京大学《中文核心期刊要目总览》来源期刊(Source Journal of Peking University Overview of Chinese Core Journals).
