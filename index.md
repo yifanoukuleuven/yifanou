@@ -1,6 +1,8 @@
 ###  Candidate in Kuleuven University(Dutch), assisant professor,cantab
 鲁汶大学大众传播学院博士候选人（荷兰语），曾经的大学讲师（中国）,剑桥大学硕士
 
+###  Academic discussion and cooperation:yifan.ou@kuleuven.be
+
 I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then got the position to be an assistant professor to teach the art majors. Apart from serval years of working in the university, I also had experiences of part-time jobs and interships in media institutes(Like CCTV),which are more practical-oriental in the previous year. Also during the period, I went to University of Cambridge for the second master and now do Phd at SMCR.
 
 ### Skills: Phyton,R,SPSS,Latex,Github,Photoshop,Premiere,Audition&Cool Edit,Nvivo
