@@ -7,6 +7,8 @@ I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then go
 
 ### Topics of Interests：Media psychology，Well-being，Adolescents
 
+### Research Methods：Questionnaire surveys, Data mining, Semi-structured interviews, Experimental methods, Focus groups
+
 ### Qualifications:
    MPhil:University of Cambridge   全日制研究型硕士：剑桥大学
    
