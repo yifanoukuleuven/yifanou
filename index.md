@@ -36,27 +36,27 @@ I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then go
    
 ### Financial support and research projects（During Ph.D.）：
 ### (1)Chinese National Poject：National Social Science Fund-Art Project,funded by National Social Science Fund of China(NSSFC) 
-     Project approval number: 21BF085，2021.08-2025.12，In research 
-     Main participating members of the project (responsible for investigating the external communication part of traditional Chinese culture and collecting relevant foreign language materials)
- Funding amount:200,000 RMB
-      国家社科基金艺术学项目“南朝陵墓石刻与南朝文化关系研究”，项目批准号21BF085，2021.08-2025.12, 在研
-      项目主要参与成员（负责调研中华传统文化的对外传播部分及相关外文资料收集） 
-      资助金额：20万人民币
+Project approval number: 21BF085，2021.08-2025.12，In research ;
+Main participating members of the project (responsible for investigating the external communication part of traditional Chinese culture and collecting relevant foreign language materials);
+Funding amount:200,000 RMB;
+国家社科基金艺术学项目“南朝陵墓石刻与南朝文化关系研究”，项目批准号21BF085，2021.08-2025.12, 在研;
+项目主要参与成员（负责调研中华传统文化的对外传播部分及相关外文资料收集); 
+资助金额：20万人民币
 
-### China National Social Science Key Project：National Social Science Fund-Unpopular and Secret Science Research Project，funded by National Social Science Fund of China(NSSFC)
-  Project number:21VJXG015,2021.11-2014.12,In research
-  The main participating members of the project(the first participant in the ranking order):Responsible for the communication history and characteristics, external communication and development of the research object; collection of relevant foreign language materials  Funding amount: 350,000 RMB
- （国家社科重点项目）国家社科基金冷门绝学研究专项“明清以来玉米史资料集成汇考”，项目批准号21VJXG015，2021.11-2014.12，在研
- 项目主要参与成员（排序为第一参与人)：负责研究农作物的传播历史和特点，对外传播及发展；收集和整理相关外文资料
+### (2) China National Social Science Key Project：National Social Science Fund-Unpopular and Secret Science Research Project，funded by National Social Science Fund of China(NSSFC)
+Project number:21VJXG015,2021.11-2014.12,In research;
+The main participating members of the project(the first participant in the ranking order):Responsible for the communication history and characteristics, external communication and development of the research object; collection of relevant foreign language materials;  Funding amount: 350,000 RMB;
+ （国家社科重点项目）国家社科基金冷门绝学研究专项“明清以来玉米史资料集成汇考”，项目批准号21VJXG015，2021.11-2014.12，在研;
+ 项目主要参与成员（排序为第一参与人)：负责研究农作物的传播历史和特点，对外传播及发展；收集和整理相关外文资料;
  资助金额：35万人民币
 
-（3）Received financial support from Jiangsu Education Department during doctoral study; salary subsidy from Jiangsu Second Normal University
+### (3)Received financial support from Jiangsu Education Department during doctoral study; salary subsidy from Jiangsu Second Normal University
 
-### Other(Provincial Project)：The Philosophy and Social Science Research Fund Project of Jiangsu Universities,funded by the Jiangsu Provincial Department of Education,Completed in 2018
-Project number2016JB760034
-Main participating members of the project
-Funding amount: 16,000 RMB
-江苏高校哲学社会科学研究基金项目“革命历史题材电影核心价值观呈现研究”(1990-2015)，项目批准号2016JB760034，2018年已结题
+### (4)Other(Provincial Project)：The Philosophy and Social Science Research Fund Project of Jiangsu Universities,funded by the Jiangsu Provincial Department of Education,Completed in 2018
+Project number2016JB760034;
+Main participating members of the project;
+Funding amount: 16,000 RMB;
+江苏高校哲学社会科学研究基金项目“革命历史题材电影核心价值观呈现研究”(1990-2015)，项目批准号2016JB760034，2018年已结题;
 项目主要参与成员 资助金额:1.6万人民币
 
 ### Book Chapter
