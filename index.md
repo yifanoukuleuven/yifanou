@@ -36,27 +36,27 @@ I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then go
    
 ### Financial support and research projects（During Ph.D.）：
 
-### (1)Chinese National Poject：National Social Science Fund-Art Project,funded by National Social Science Fund of China(NSSFC)
+### (1)Chinese National Poject：National Social Science Fund-Art Project,funded by National Social Science Fund of China(NSSFC)；
 
-### Main participating members of the project 
+### Main participating member of the project
 responsible for investigating the external communication part of traditional Chinese culture and collecting relevant foreign language materials;
 
 Project approval number: 21BF085，2021.08-2025.12，In research ; Funding amount:200,000 RMB;
 
-国家社科基金艺术学项目“南朝陵墓石刻与南朝文化关系研究”
+国家社科基金艺术学项目“南朝陵墓石刻与南朝文化关系研究”；
 
 项目主要参与成员（负责调研中华传统文化的对外传播部分及相关外文资料收集); 
 
 项目批准号21BF085，2021.08-2025.12, 在研; 资助金额：20万人民币
 
-### (2) China National Social Science Key Project：National Social Science Fund-Unpopular and Secret Science Research Project，funded by National Social Science Fund of China(NSSFC)
+### (2) China National Social Science Key Project：National Social Science Fund-Unpopular and Secret Science Research Project，funded by National Social Science Fund of China(NSSFC)；
 
 ### The main participating members of the project(the first participant in the ranking order):
 Responsible for the communication history and characteristics, external communication and development of the research object; collection of relevant foreign language materials; 
 
 Project number:21VJXG015,2021.11-2014.12,In research;Funding amount: 350,000 RMB;
 
-(国家社科重点项目）国家社科基金冷门绝学研究专项“明清以来玉米史资料集成汇考”
+(国家社科重点项目）国家社科基金冷门绝学研究专项“明清以来玉米史资料集成汇考”；
 
 项目主要参与成员（排序为第一参与人)：负责研究农作物的传播历史和特点，对外传播及发展；收集和整理相关外文资料;
 
@@ -64,6 +64,7 @@ Project number:21VJXG015,2021.11-2014.12,In research;Funding amount: 350,000 RMB
 
 ### (3)Received financial support from Jiangsu Education Department during doctoral study;
 ### salary subsidy from Jiangsu Second Normal University
+
 读博期间接受过来自江苏省教育厅、原单位江苏第二师范学院的资金支持（在此鸣谢）
 
 ### (4)Other(Provincial Project)：The Philosophy and Social Science Research Fund Project of Jiangsu Universities,funded by the Jiangsu Provincial Department of Education;
@@ -72,9 +73,9 @@ Project number:21VJXG015,2021.11-2014.12,In research;Funding amount: 350,000 RMB
 
 Project number2016JB760034,Completed in 2018;Funding amount: 16,000 RMB;
 
-江苏高校哲学社会科学研究基金项目“革命历史题材电影核心价值观呈现研究”(1990-2015)
+江苏高校哲学社会科学研究基金项目“革命历史题材电影核心价值观呈现研究”(1990-2015)；
 
-项目主要参与成员：负责电影资料收集、从电影叙事及传播策略的角度进行分析
+项目主要参与成员：负责电影资料收集、从电影叙事及传播策略的角度进行分析；
 
 项目批准号：2016JB760034，2018年已结项；资助金额:1.6万人民币
 
