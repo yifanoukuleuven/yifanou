@@ -51,7 +51,7 @@ Project approval number: 21BF085，2021.08-2025.12，In research ; Funding amoun
 
 ### (2) China National Social Science Key Project：National Social Science Fund-Unpopular and Secret Science Research Project，funded by National Social Science Fund of China(NSSFC)；
 
-### The main participating members of the project(the first participant in the ranking order):
+### The main participating member of the project(the first participant in the ranking order):
 Responsible for the communication history and characteristics, external communication and development of the research object; collection of relevant foreign language materials; 
 
 Project number:21VJXG015,2021.11-2014.12,In research;Funding amount: 350,000 RMB;
