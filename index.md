@@ -62,13 +62,15 @@ Project number:21VJXG015,2021.11-2014.12,In research;Funding amount: 350,000 RMB
 
 项目批准号21VJXG015，2021.11-2014.12，在研;资助金额：35万人民币
 
-### (3)Received financial support from Jiangsu Education Department during doctoral study; salary subsidy from Jiangsu Second Normal University
+### (3)Received financial support from Jiangsu Education Department during doctoral study;
+### salary subsidy from Jiangsu Second Normal University
+读博期间接受过来自江苏省教育厅、原单位江苏第二师范学院的资金支持（在此鸣谢）
 
-### (4)Other(Provincial Project)：The Philosophy and Social Science Research Fund Project of Jiangsu Universities,funded by the Jiangsu Provincial Department of Education,Completed in 2018
+### (4)Other(Provincial Project)：The Philosophy and Social Science Research Fund Project of Jiangsu Universities,funded by the Jiangsu Provincial Department of Education;
 
 ### Main participating members of the project;
 
-Project number2016JB760034;Funding amount: 16,000 RMB;
+Project number2016JB760034,Completed in 2018;Funding amount: 16,000 RMB;
 
 江苏高校哲学社会科学研究基金项目“革命历史题材电影核心价值观呈现研究”(1990-2015)
 
