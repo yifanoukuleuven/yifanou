@@ -37,11 +37,11 @@ I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then go
 ### Financial support and research projects（During Ph.D.）：
 （1）Chinese National Poject：National Social Science Fund-Art Project,funded by National Social Science Fund of China(NSSFC) 
  Project approval number: 21BF085，2021.08-2025.12，In research 
- Main participating members of the project (responsible for investigating the external communication part of traditional Chinese culture and collecting relevant foreign language materials)
+      Main participating members of the project (responsible for investigating the external communication part of traditional Chinese culture and collecting relevant foreign language materials)
  Funding amount:200,000 RMB
- 国家社科基金艺术学项目“南朝陵墓石刻与南朝文化关系研究”，项目批准号21BF085，2021.08-2025.12, 在研
- 项目主要参与成员（负责调研中华传统文化的对外传播部分及相关外文资料收集） 
- 资助金额：20万人民币
+      国家社科基金艺术学项目“南朝陵墓石刻与南朝文化关系研究”，项目批准号21BF085，2021.08-2025.12, 在研
+      项目主要参与成员（负责调研中华传统文化的对外传播部分及相关外文资料收集） 
+      资助金额：20万人民币
 
 （2）China National Social Science Key Project：National Social Science Fund-Unpopular and Secret Science Research Project，funded by National Social Science Fund of China(NSSFC)
   Project number:21VJXG015,2021.11-2014.12,In research
