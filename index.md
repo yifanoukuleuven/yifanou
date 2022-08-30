@@ -30,6 +30,8 @@ I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then go
    
    Bachelor: Zhejiang University of Technology  全日制本科：浙江工业大学
    
+   Dissertation supervisor: Han Xiao (萧寒）
+   
    Major:Braodacasting and Hosting Art& Business Administration
    
    （Double Degree in Management and Literature）    专业：播音与主持&工商管理双专业，文学及管理学双学士学位
