@@ -22,7 +22,9 @@ I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then go
    
    Master : Communication University of China   全日制硕士：中国传媒大学
    
-   Major:Broadcasting and Host Art              专业：广播电视-播音主持艺术方向  
+   Major:Broadcasting and Host Art              专业：广播电视-播音主持艺术方向
+   
+   Master supervisor:Fenghui Li、Xian Du(李凤辉、杜宪）
    
    Outstanding graduates of Beijing&National Scholarship 北京市优秀毕业生&国家奖学金
    
