@@ -38,6 +38,27 @@ I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then go
    
    Outstanding granduates of the University&First- and second-class scholarships  浙江工业大学优秀毕业生&校一、二等奖学金
    
+   ### Publications(Selected):
+Ou,Y et al.(2023)The mediating role of social support and Coronavirus anxiety detection mechanisms-gratitude among adolescents in the context of the Covid-19 pandemic(Abstract accepted) by SSCI(Q1)
+
+Ou,Y et al.(2023)Instant Messengers as Emotional and Affective Spaces : A Case Study of Emojis used on WeChat in China (Abstract accepted) by SSCI(Q1)
+
+Ou,Y(2023)The Digital Development and Political Communication of Traditional Broadcasting in the Internet Era-Taking "Cloud Listening" as an Example (Hermes La Revue, solicit manuscript)
+
+Ou,Y.et al.影视剧平衡艺术的儒家思想表现及三观彰显-以电视剧《人世间》为例 Under review (CSSCI南大核心期刊审核稿件中)
+
+Ou,Y.et al. Prosocial behaviors  in Chinese Social Question and Answer Communities：From the Perspective of Captial Theory(Manuscript in preparation）
+
+Ou,Y.et al.The more anxiety about Corona, the easier it is to fall into rumination? A study on the behavior of adolescents using Douyin in the context of the Covid-19 pandemic(Manuscript in preparation)
+
+欧 Y. (2014)。电视新闻节目主持人的风格特点——以央视《新闻联播》为例 电视新闻节目主持人的风格特点——以央视《新闻联播》为例。记者青年青年记者，(03Z)，52-53.北京大学《中文核心期刊要目总览》来源期刊（北京大学中文核心期刊总览来源期刊）。,
+
+Ou, Y. (2014). 浅析情感类节目主持人对话语风格及情感导向的把握--以《 夜线》 节目为例.An Analysis of Emotional Program Hosts' Grasp of Discourse Style and Emotional Orientation--Taking "Night Line" as an Example. 新闻知识News Research, (3), 97-97.北京大学《中文核心期刊要目总览》来源期刊(Source Journal of Peking University Overview of Chinese Core Journals).
+
+Ou, Y. (2013). 浅析旅游类节目主持特点——以《有多远走多远》为例 (An Analysis of the Characteristics of Tourism Program Hosting——Take "How Far and How Far" as an Example). 中国报业 (China Newspaper Industry).北京大学《中文核心期刊要目总览》来源期刊2008年版(Source Journal of Peking University Overview of Chinese Core Journals 2008 edition).
+
+Ou, Y., Wang, Q. (2013). 主持人的形象建构多元化视角分析 (Analysis of the Diversified Perspectives of the Program Host's Image Construction). 中国报业 (China Newspaper Industry) 北京大学《中文核心期刊要目总览》来源期刊2008年版(Source Journal of Peking University Overview of Chinese Core Journals 2008 edition).  
+   
 ### Financial support and research projects（During Ph.D.）：
 
 ### (1)Chinese National Poject：National Social Science Fund-Art Project,funded by National Social Science Fund of China(NSSFC)；
@@ -71,11 +92,23 @@ Project number:21VJXG015,2021.11-2014.12,In research;Funding amount: 350,000 RMB
 
 读博期间接受过来自江苏省教育厅、原单位江苏第二师范学院的资金支持（在此鸣谢）
 
-### (4)Other(Provincial Project)：The Philosophy and Social Science Research Fund Project of Jiangsu Universities,funded by the Jiangsu Provincial Department of Education;
+### (4)Other(Provincial Project)：,General Topics of Philosophy and Social Planning in Zhejiang Province，funded by Zhejiang Federation of Humanities and Social Sciences（ZFHSS）；
 
 ### Main participating members of the project;
 
-Project number2016JB760034,Completed in 2018;Funding amount: 16,000 RMB;
+Project number:19NDQN355YB;Funding amount:40,000 RMB;
+
+浙江省哲学社会规划一般课题"互联网群体传播对社会秩序重序的模式与路径优化研究"；
+
+项目主要参与成员：负责课题撰写及资料收集；
+
+课题编号：19NDQN355YB，2022年已结项；资助金额：4万元
+
+### (5)Other(Provincial Project)：The Philosophy and Social Science Research Fund Project of Jiangsu Universities,funded by the Jiangsu Provincial Department of Education;
+
+### Main participating members of the project;
+
+Project number:2016JB760034,Completed in 2018;Funding amount: 16,000 RMB;
 
 江苏高校哲学社会科学研究基金项目“革命历史题材电影核心价值观呈现研究”(1990-2015)；
 
@@ -85,27 +118,6 @@ Project number2016JB760034,Completed in 2018;Funding amount: 16,000 RMB;
 
 ### Book Chapter
 Ou, Y. (2021). 《广播心理情感类节目播音主持》(Broadcasting host of radio psychological and emotional  programs）. In: J. Feng, S. Liu, G. Zhao, B. Wang, Q. Shen (Eds.), Chapt. Fourth, (99-135). China: Hohai University Press. ISBN: 978-7-5630-7099-2.（http://opac.jisu.edu.cn/opac/item.php?marc_no=0002614363&list=1）
-
-### Publications(Selected):
-Ou,Y et al.(2023)The mediating role of social support and Coronavirus anxiety detection mechanisms-gratitude among adolescents in the context of the Covid-19 pandemic(Abstract accepted) by SSCI(Q1)
-
-Ou,Y et al.(2023)Instant Messengers as Emotional and Affective Spaces : A Case Study of Emojis used on WeChat in China (Abstract accepted) by SSCI(Q1)
-
-Ou,Y(2023)The Digital Development and Political Communication of Traditional Broadcasting in the Internet Era-Taking "Cloud Listening" as an Example (Hermes La Revue, solicit manuscript)
-
-Ou,Y.et al.影视剧平衡艺术的儒家思想表现及三观彰显-以电视剧《人世间》为例 Under review (CSSCI南大核心期刊审核稿件中)
-
-Ou,Y.et al. Prosocial behaviors  in Chinese Social Question and Answer Communities：From the Perspective of Captial Theory(Manuscript in preparation）
-
-Ou,Y.et al.The more anxiety about Corona, the easier it is to fall into rumination? A study on the behavior of adolescents using Douyin in the context of the Covid-19 pandemic(Manuscript in preparation)
-
-欧 Y. (2014)。电视新闻节目主持人的风格特点——以央视《新闻联播》为例 电视新闻节目主持人的风格特点——以央视《新闻联播》为例。记者青年青年记者，(03Z)，52-53.北京大学《中文核心期刊要目总览》来源期刊（北京大学中文核心期刊总览来源期刊）。,
-
-Ou, Y. (2014). 浅析情感类节目主持人对话语风格及情感导向的把握--以《 夜线》 节目为例.An Analysis of Emotional Program Hosts' Grasp of Discourse Style and Emotional Orientation--Taking "Night Line" as an Example. 新闻知识News Research, (3), 97-97.北京大学《中文核心期刊要目总览》来源期刊(Source Journal of Peking University Overview of Chinese Core Journals).
-
-Ou, Y. (2013). 浅析旅游类节目主持特点——以《有多远走多远》为例 (An Analysis of the Characteristics of Tourism Program Hosting——Take "How Far and How Far" as an Example). 中国报业 (China Newspaper Industry).北京大学《中文核心期刊要目总览》来源期刊2008年版(Source Journal of Peking University Overview of Chinese Core Journals 2008 edition).
-
-Ou, Y., Wang, Q. (2013). 主持人的形象建构多元化视角分析 (Analysis of the Diversified Perspectives of the Program Host's Image Construction). 中国报业 (China Newspaper Industry) 北京大学《中文核心期刊要目总览》来源期刊2008年版(Source Journal of Peking University Overview of Chinese Core Journals 2008 edition).  
 
 ### Presentations
 Ou, Y. (2022). The relationship between social support and sense of loneliness among different personailty adolescent and mediator of gratitude. Presented at the ICA post conference “Digital Health Communication”, Dijon. 
