@@ -37,8 +37,9 @@ I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then go
    （Double Degree in Management and Literature）    专业：播音与主持&工商管理双专业，文学及管理学双学士学位
    
    Outstanding granduates of the University&First- and second-class scholarships  浙江工业大学优秀毕业生&校一、二等奖学金
-   
-   ### Publications(Selected):
+
+
+### Publications(Selected):
 Ou,Y et al.(2023)The mediating role of social support and Coronavirus anxiety detection mechanisms-gratitude among adolescents in the context of the Covid-19 pandemic(Abstract accepted) by SSCI(Q1)
 
 Ou,Y et al.(2023)Instant Messengers as Emotional and Affective Spaces : A Case Study of Emojis used on WeChat in China (Abstract accepted) by SSCI(Q1)
