@@ -92,7 +92,7 @@ Project number:21VJXG015,2021.11-2014.12,In research;Funding amount: 350,000 RMB
 
 读博期间接受过来自江苏省教育厅、原单位江苏第二师范学院的资金支持（在此鸣谢）
 
-### (4)Other(Provincial Project)：,General Topics of Philosophy and Social Planning in Zhejiang Province，funded by Zhejiang Federation of Humanities and Social Sciences（ZFHSS）；
+### (4)Other(Provincial Project)：,General project of Philosophy and Social Planning in Zhejiang Province，funded by Zhejiang Federation of Humanities and Social Sciences（ZFHSS）；
 
 ### Main participating members of the project;
 
