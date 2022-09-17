@@ -38,13 +38,12 @@ I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then go
    
    Outstanding granduates of the University&First- and second-class scholarships  浙江工业大学优秀毕业生&校一、二等奖学金
 
-
 ### Publications(Selected):
 Ou,Y et al.(2023)The mediating role of social support and Coronavirus anxiety detection mechanisms-gratitude among adolescents in the context of the Covid-19 pandemic(Abstract accepted) by SSCI(Q1)
 
 Ou,Y et al.(2023)Instant Messengers as Emotional and Affective Spaces : A Case Study of Emojis used on WeChat in China (Abstract accepted) by SSCI(Q1)
 
-Ou,Y(2023)The Digital Development and Political Communication of Traditional Broadcasting in the Internet Era-Taking "Cloud Listening" as an Example (Hermes La Revue, solicit manuscript)
+Ou,Y(2023)The Digital Development and Political Communication of Traditional Broadcasting in the Internet Era-Taking "Cloud Listening" as an Example (Hermes La Revue, Abstract accepted)
 
 Ou,Y.et al.影视剧平衡艺术的儒家思想表现及三观彰显-以电视剧《人世间》为例 Under review (CSSCI南大核心期刊审核稿件中)
 
