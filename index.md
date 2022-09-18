@@ -14,6 +14,7 @@ I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then go
 ### Research Methods：Questionnaire surveys, Data mining, Semi-structured interviews, Experimental methods, Focus groups
 
 ### Qualifications:
+
    MPhil:University of Cambridge   全日制研究型硕士、副博士：剑桥大学
    
    Major:Sociology(Media and Culture route)  专业：社会学（媒体与文化方向）  
