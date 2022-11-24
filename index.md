@@ -13,6 +13,8 @@ I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then go
 
 ### Research Methods：Questionnaire surveys, Data mining, Semi-structured interviews, Experimental methods, Focus groups
 
+### Reviewer: ICA conference ; Etmaal conference 2023
+
 ### Qualifications:
 
    MPhil:University of Cambridge   全日制研究型硕士、副博士：剑桥大学
@@ -64,6 +66,8 @@ Ou, Y., Wang, Q. (2013). 主持人的形象建构多元化视角分析 (Analysis
 Ou, Y. (2021). 《广播心理情感类节目播音主持》(Broadcasting host of radio psychological and emotional  programs）. In: J. Feng, S. Liu, G. Zhao, B. Wang, Q. Shen (Eds.), Chapt. Fourth, (99-135). China: Hohai University Press. ISBN: 978-7-5630-7099-2.（http://opac.jisu.edu.cn/opac/item.php?marc_no=0002614363&list=1）
 
 ### Presentations
+Ou, Y. (2022). The influence of different social media information overload on the well-being of Chinese adolescent users. Presented at Interpersonal Health Communication Workinggroup, 25 November 2022-KU LEUVEN
+
 Ou, Y. (2022). The relationship between social support and sense of loneliness among different personailty adolescent and mediator of gratitude. Presented at the ICA post conference “Digital Health Communication”, Dijon. 
 
 Ou, Y. (2022). Instant Messengers as Socio-Cultural Emotional and Affective Spaces. A Chinese Case Study on the Use of Emojis and Stickers. Presented at the ICA pre-conference : China and the Future of the Internet, Virtual presentation. 
