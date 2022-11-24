@@ -44,15 +44,15 @@ I held BA and MA are both Art degrees(Broadcasting and Hosting Art), and then go
 ### Publications(Selected):
 Ou,Y et al.(2023)The mediating role of social support and Coronavirus anxiety detection mechanisms-gratitude among adolescents in the context of the Covid-19 pandemic(Manuscript in preparation)
 
+Ou,Y.et al.The more anxiety about Corona, the easier it is to fall into rumination? A study on the behavior of adolescents using Douyin in the context of the Covid-19 pandemic(Manuscript in preparation)
+
 Ou,Y et al.(2023)Instant Messengers as Emotional and Affective Spaces : A Case Study of Emojis used on WeChat in China (Abstract accepted)(Manuscript in preparation)
+
+Ou,Y.et al. Prosocial behaviors  in Chinese Social Question and Answer Communities：From the Perspective of Captial Theory(Manuscript in preparation）
 
 Ou,Y(2023)The Digital Development and Political Communication of Traditional Broadcasting in the Internet Era-Taking "Cloud Listening" as an Example (Hermes La Revue, Abstract accepted)
 
 Ou,Y.et al.(2023) 影视剧平衡艺术的儒家思想表现及三观彰显-以电视剧《人世间》为例 山东社会科学（CSSCI）已接收（Shandong Social Sciences accepted）
-
-Ou,Y.et al. Prosocial behaviors  in Chinese Social Question and Answer Communities：From the Perspective of Captial Theory(Manuscript in preparation）
-
-Ou,Y.et al.The more anxiety about Corona, the easier it is to fall into rumination? A study on the behavior of adolescents using Douyin in the context of the Covid-19 pandemic(Manuscript in preparation)
 
 欧 Y. (2014)。电视新闻节目主持人的风格特点——以央视《新闻联播》为例 电视新闻节目主持人的风格特点——以央视《新闻联播》为例。记者青年青年记者，(03Z)，52-53.北京大学《中文核心期刊要目总览》来源期刊（北京大学中文核心期刊总览来源期刊）。,
 
