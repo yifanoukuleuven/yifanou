@@ -66,23 +66,6 @@ Ou, Y., Wang, Q. (2013). 主持人的形象建构多元化视角分析 (Analysis
 ### Book Chapter
 Ou, Y. (2021). 《广播心理情感类节目播音主持》(Broadcasting host of radio psychological and emotional  programs）. In: J. Feng, S. Liu, G. Zhao, B. Wang, Q. Shen (Eds.), Chapt. Fourth, (99-135). China: Hohai University Press. ISBN: 978-7-5630-7099-2.（http://opac.jisu.edu.cn/opac/item.php?marc_no=0002614363&list=1）
 
-### Presentations
-Ou, Y. (2022). The influence of different social media information overload on the well-being of Chinese adolescent users. Presented at Interpersonal Health Communication Workinggroup, 25 November 2022-KU LEUVEN
-
-Ou, Y. (2022). The relationship between social support and sense of loneliness among different personailty adolescent and mediator of gratitude. Presented at the ICA post conference “Digital Health Communication”, Dijon. 
-
-Ou, Y. (2022). Instant Messengers as Socio-Cultural Emotional and Affective Spaces. A Chinese Case Study on the Use of Emojis and Stickers. Presented at the ICA pre-conference : China and the Future of the Internet, Virtual presentation. 
-
-Ou, Y. (2019). 网络综艺类节目的生产、传播与发展浅析 (Analysis on the Spread and Development of Network Entertainment Programs). Presented at the 多媒体视域下影视内容生产与传播——2019 年中国东部 传媒艺术高端论坛(Production and dissemination of film and television content from the perspective of multimedia - 2019 Eastern China Media Art High-end Forum), Nanjing. 
-
-Ou, Y. (2018). The rise of knowledge contribution in Chinese virtual communities. Presented at the International Communication Association 68th Annual Post-conference"Voices of Chinese scholars over the last 40 years", Pargue. 
-
-Ou, Y. (2018). The Prosocial Behavior in the Process of Digital Music Communication in Chinese Virtual Communities. Presented at the International Communication Association’s 68th Annual Conference, Prague. 
-
-Ou, Y. (2018). Kittens for Peace. Engaging Terrorism and Cultures of Fear With Cats. Presented at the 13th Global Communication Association Conference, Madrid. 
-
-Tobias, L., Ou, Y. (2017). Post-animal utopias-the mediated politics of future foods. Presented at the International Conference on Futures of Media, Sri Lanka. 
-
 ### Financial support and research projects（During Ph.D.）：
 
 ### (1)Chinese National Poject：National Social Science Fund-Art Project,funded by National Social Science Fund of China(NSSFC)；
@@ -140,7 +123,26 @@ Project number:2016JB760034,Completed in 2018;Funding amount: 16,000 RMB;
 
 项目批准号：2016JB760034，2018年已结项；资助金额:1.6万人民币
 
+### Presentations
+Ou,Y. et al.(2023),The Internal Publicity and Digital Development of Traditional Broadcasting in the Internet Era-Taking "Cloud Listening" as an Example.Accepted at Etmaal 2023, 2 Feburary, Netherland
 
+Ou.Y.(second author) et al.(2023), Analysis of knowledge contribution behavior of young Chinese users on Zhihu.com.Accepted at Etmaal 2023, 2 Feburary, Netherland
+
+Ou, Y. (2022). The influence of different social media information overload on the well-being of Chinese adolescent users. Presented at Interpersonal Health Communication Workinggroup, 25 November 2022-KU LEUVEN
+
+Ou, Y. (2022). The relationship between social support and sense of loneliness among different personailty adolescent and mediator of gratitude. Presented at the ICA post conference “Digital Health Communication”, Dijon. 
+
+Ou, Y. (2022). Instant Messengers as Socio-Cultural Emotional and Affective Spaces. A Chinese Case Study on the Use of Emojis and Stickers. Presented at the ICA pre-conference : China and the Future of the Internet, Virtual presentation. 
+
+Ou, Y. (2019). 网络综艺类节目的生产、传播与发展浅析 (Analysis on the Spread and Development of Network Entertainment Programs). Presented at the 多媒体视域下影视内容生产与传播——2019 年中国东部 传媒艺术高端论坛(Production and dissemination of film and television content from the perspective of multimedia - 2019 Eastern China Media Art High-end Forum), Nanjing. 
+
+Ou, Y. (2018). The rise of knowledge contribution in Chinese virtual communities. Presented at the International Communication Association 68th Annual Post-conference"Voices of Chinese scholars over the last 40 years", Pargue. 
+
+Ou, Y. (2018). The Prosocial Behavior in the Process of Digital Music Communication in Chinese Virtual Communities. Presented at the International Communication Association’s 68th Annual Conference, Prague. 
+
+Ou, Y. (2018). Kittens for Peace. Engaging Terrorism and Cultures of Fear With Cats. Presented at the 13th Global Communication Association Conference, Madrid. 
+
+Tobias, L., Ou, Y. (2017). Post-animal utopias-the mediated politics of future foods. Presented at the International Conference on Futures of Media, Sri Lanka. 
  
 
 
